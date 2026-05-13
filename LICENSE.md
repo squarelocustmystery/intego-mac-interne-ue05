@@ -1,4 +1,4 @@
-# 
+# Enhance Intego Mac Internet Security for macOS with vip Intego Mac Internet Security for macOS Helper | safe-browsing + data-breach-alerts, the #1 helper. Includes safe-browsing
 
 
 
